@@ -9,12 +9,15 @@
 2. Drawing 
 3. Listening to Music 
 4. Crafting 
-5. Watching shows </u>
+5. Watching shows</u>
 
 That's what I do when I'm bored which happens a lot, except sometimes I just stare at the ceiling and do nothing. I was hoping to be more productive over the weekends after school started but I infact spent the whole day reading. (That's still productive right?) I mean, you couldn't really get me to put the book the book down because I hit a plot twist just as I was thinking to do something else. Moving on I also love to draw. I mostly draw anime or realism, there's bascially no in between. If you look at my house you'll see a random acryllic cat I made in realism, and then a colored pencil drawing of Eren, Mikasa, and Levi from Attack on Titan. Moving on, you can probably assume that I love anime which is true. I'd have to say that my all time favorites are: 
+
+
 <u>
+
 1. Wind Breaker 
-2. Link CLick 
+2. Link Click
 3. Erased 
 4. Attack on Titan 
 5. The Summer Hikaru Died</u>
